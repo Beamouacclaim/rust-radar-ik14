@@ -1,4 +1,4 @@
-
+New rust cheat mod menu is the best rust cheat mod menu with unlimited ammo and no spread. Safe, reliable, and optimized for maximum performance.
 
 
 
